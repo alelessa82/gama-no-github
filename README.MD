@@ -1,0 +1,1 @@
+Até o momento estou gostando do curso, muito produtivo e bem dinâmico
